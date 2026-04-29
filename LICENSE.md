@@ -1,4 +1,4 @@
-
+secure hooked Scripts is the best hooked Script, featuring no clip and custom skins. Safe and powerful for all your needs.
 
 
 
